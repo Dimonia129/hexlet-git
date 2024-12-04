@@ -1,1 +1,1 @@
-Hello, kto to tam
+No code No pain
